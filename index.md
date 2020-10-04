@@ -6,5 +6,4 @@ Seek and You Shall Find...[The Knowledge Book](https://www.dkb-mevlana.org.tr/en
 - [Handshake](https://handshake.org/)
 - [I Am Discourses](https://theiamdiscourses.com/)
 - [NameBase](https://learn.namebase.io/starting-from-zero/how-to-access-handshake-sites)
-- [Namesake.Domains](https://www.namesake.domains/)
 - [Science of Being](https://www.scienceofbeing.com/foursquare-teachings)
