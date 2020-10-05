@@ -1,4 +1,4 @@
-KNOWLEDGE IS FREE;
+KNOWLEDGE IS FREE; Fan The Fire Of Knowledge!
 
 Seek and You Shall Find...[The Knowledge Book](https://www.dkb-mevlana.org.tr/en/txt/tanitim.pdf)
 
